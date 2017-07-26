@@ -5,7 +5,7 @@
 
 * Brown
 * Black
-* White
+* Red
 
 *Easy to assemble*
 
