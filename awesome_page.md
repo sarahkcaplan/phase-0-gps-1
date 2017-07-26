@@ -9,7 +9,7 @@
 
 *Easy to assemble*
 
-```cheap```
+```cheap and fun```
 
 [Ikea](https://www.google.com/aclk?sa=L&ai=DChcSEwiUhMi9_afVAhUOVw0KHWi0A24YABAHGgJxYg&sig=AOD64_0bIr086VE29RpZDg-2H-V_PYY8Dg&ctype=5&q=&ved=0ahUKEwjcncO9_afVAhUnh1QKHXI5BNAQwzwICA&adurl=)
 
